@@ -1,8 +1,8 @@
  Hi there 👋
 
- 👋 Welcome to NutrixSo Coffee  
-
- ☕ Authentic • Premium • Natural  
+ ☕ NutrixSo™ | Authentic. Premium. Natural.
+Tea & Coffee Brand — Blending tradition with technology 🌿
+www.instagram.com/nutrixso 
 
 We are a **Premium Instant Coffee Brand** from Gujarat, India.  
 Supplying to Hotels • Canteens • Retail Shops • Tea Vendors • Distributors across India.  
