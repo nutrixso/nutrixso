@@ -1,22 +1,50 @@
- Hi there 👋
+👋 Hi, I'm the Founder of NutrixSo
 
- ☕ NutrixSo™ | Authentic. Premium. Natural.
-Tea & Coffee Brand — Blending tradition with technology 🌿
-www.instagram.com/nutrixso 
+Welcome to my GitHub profile.
 
-We are a **Premium Instant Coffee Brand** from Gujarat, India.  
-Supplying to Hotels • Canteens • Retail Shops • Tea Vendors • Distributors across India.  
+I am the founder of **NutrixSo**, an Indian snack brand focused on manufacturing fresh and healthy **Desi Nuts and Traditional Snacks**.
 
+About NutrixSo
 
-🌟 About Us  
- ✅ Strong Taste, Smooth Aroma & Premium Quality
- ✅ Specializing in **Agglomerated Instant Coffee**  
- ✅ Bulk packs, Retail Jars & Private Labeling Available  
- ✅ Trusted by Hotels, Canteens & Food Businesses  
+NutrixSo produces hygienically packed snack products designed for retailers and small businesses.
 
+Our popular products include:
 
+- Roasted Peanuts
+- Roasted Chana
+- Chana Jor Garam
+- Masala Matar
+- Chana Dal
+- Salted Peanuts (Khari Sing)
 
-🌍 Connect with Us  
+All products are packed in *transparent food-grade packaging*🤔 with a focus on quality and freshness.
+
+Our snacks are perfect for:
+
+- Kirana Stores
+- Tea Stalls
+- Bakeries
+- Supermarkets
+- School & Office Canteens
+
+Website
+
+https://www.nutrixso.in
+
+ Business
+
+Snack Manufacturing  
+Wholesale Supply  
+Retail Snack Products
+
+ Contact
+
+Business inquiries welcome.
+
+WhatsApp: +91 9023615556
+
+⭐ Follow for updates about snacks, retail business ideas and FMCG products.
+ 
  📘 [Facebook](https://www.facebook.com/share/1BTSC1kHfc/)  
  📷 [Instagram](https://www.instagram.com/nutrixso_coffee/)  
  ▶️ [YouTube](https://www.youtube.com/@NutrixSo)  
@@ -26,13 +54,3 @@ Supplying to Hotels • Canteens • Retail Shops • Tea Vendors • Distributo
  📲 [WhatsApp](https://wa.me/919023615556)  
  📢 [Telegram](https://t.me/+TPWJc0aLM3I1NjNl)  
  👻 [Snapchat](https://www.snapchat.com/add/nutrixso)  
-
-
- 📦 Products  
-- 200g NutrixSo Coffee Jar – Retail Pack  
-- 500g NutrixSo Coffee Pouch – For Tea Shops  
-- 5kg NutrixSo Bulk Coffee Pack – Hotels & Canteens  
-
-
-
-✨ Refresh Your Life with NutrixSo Coffee ✨
